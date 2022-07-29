@@ -4,6 +4,7 @@
 
 Day 1; 20220630 https://www.notion.so/Day-1-20220630-29eb153379b34c90bbc5515bccc3b116
 
+Day 2; 20220701 https://www.notion.so/Day-2-20220701-91689415961049d5ba55009c1c547831
 
 
 
